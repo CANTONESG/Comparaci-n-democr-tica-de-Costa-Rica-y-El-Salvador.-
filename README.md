@@ -1,1 +1,1 @@
-# Comparaci-n-democr-tica-de-Costa-Rica-y-El-Salvador.-
+
